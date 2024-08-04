@@ -6,7 +6,7 @@
 
 -💞️ I’m looking to collaborate on projects that leverage _data analysis, economic modeling, and AI to solve complex problems and drive innovation._ 
 
--📫 How to reach me: alazizngoloc@gmail.com 
+-📫 How to reach me: alazizngoloc@gmail.com  & aziz.coulibaly@ensea.edu.ci
 
 -😄 Pronouns: he/him
 
